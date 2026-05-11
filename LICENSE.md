@@ -1,4 +1,4 @@
-# 
+# top Little Snitch for macOS Validator | emergency-access + secure-backup is the best Little Snitch for macOS validator, featuring emergency-access and secure-backup. Secure,
 
 
 
